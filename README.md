@@ -2,7 +2,7 @@
 
 Hi guys my name is ernest u can call me anything ok? 
 
-i like eddsworld n jerkshipping and im BIG on tomjon :heart: 
+i like eddsworld n danvs and im BIG on tomjon :heart: 
 
 c+h is ok, most of the offtab so w2i
 
